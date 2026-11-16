@@ -1,2 +1,4 @@
-# app-dev
-My first repository
+I am fond of the **Chiikawa** series because of its unique way of presenting a world that appears *adorable, innocent, and wholesome on the surface, but has surprisingly dark themes hidden underneath.* At first glance, the characters, art style, and overall atmosphere make it seem like a simple and lighthearted series meant to bring comfort and happiness to its viewers. However, as the story progresses, it reveals a much deeper and sometimes unsettling side of its world.
+
+What makes **Chiikawa** interesting to me is the subtle contrast between its cute appearance and the harsh realities that the characters experience. Despite their adorable designs, the characters still have to deal with struggles, uncertainty, fear, and situations that are not always as cheerful as they seem. I find this contrast favorable because it shows that something does not necessarily have to look disturbing or grotesque to explore serious and sometimes depressing themes.
+
