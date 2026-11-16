@@ -2,3 +2,4 @@ I am fond of the **Chiikawa** series because of its unique way of presenting a w
 
 What makes **Chiikawa** interesting to me is the subtle contrast between its cute appearance and the harsh realities that the characters experience. Despite their adorable designs, the characters still have to deal with struggles, uncertainty, fear, and situations that are not always as cheerful as they seem. I find this contrast favorable because it shows that something does not necessarily have to look disturbing or grotesque to explore serious and sometimes depressing themes.
 
+<img width="735" height="539" alt="image" src="https://github.com/user-attachments/assets/e848ee72-c4d9-4a76-9404-9a7e378f21ed" />
